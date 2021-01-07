@@ -2,3 +2,4 @@
 KonoKoon hat die Einladung angenommen! 
 Hey, hier ist Loan!
 Janno, Aachen
+Franzen, Köln
